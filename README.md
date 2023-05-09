@@ -1,2 +1,2 @@
 # Extreme-----Compression
-very good compression - will cahange the way we view life
+very good compression - will change the way we view life
